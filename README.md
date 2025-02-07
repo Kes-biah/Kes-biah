@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me, no reach me
 - 😄 Pronouns: she/from him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: i'm in love with herick
 
 <!---
 Kes-biah/Kes-biah is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
